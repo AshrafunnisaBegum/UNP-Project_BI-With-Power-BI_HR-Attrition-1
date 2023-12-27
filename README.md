@@ -11,5 +11,3 @@ Key highlights:
 PBIX file Link:https://drive.google.com/file/d/1fmbXoeL0hcTcbgQa7I2QDg70zl3MgHAi/view?usp=sharing
 
 PDF Link:https://drive.google.com/file/d/1vVKvW2Spvmx3d2bihzN5qMOp0N2HWqAi/view?usp=sharing
-
-Canva PPT: (https://www.canva.com/design/DAF4KDRWlpo/eiLfdpLI27UIVZXMihU87g/view?utm_content=DAF4KDRWlpo&utm_campaign=designshare&utm_medium=link&utm_source=editor)https://www.canva.com/design/DAF4KDRWlpo/eiLfdpLI27UIVZXMihU87g/view?utm_content=DAF4KDRWlpo&utm_campaign=designshare&utm_medium=link&utm_source=editor
